@@ -6,3 +6,7 @@ L. Juliana Sarmiento Arciniegas C.C 1037667898 --> Bioingeniería
 
 
 Isabella Vergara Pareja C.C 1001143472 --> Bioingeniería
+
+
+
+Link del video: 
