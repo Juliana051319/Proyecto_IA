@@ -12,3 +12,8 @@ Isabella Vergara Pareja C.C 1001143472 --> Bioingeniería
 Link del video: 
 
 https://www.youtube.com/watch?v=uMZ7wZR6hiA 
+
+
+Link del video de la entrega final: 
+
+https://youtu.be/5Os7XSALZrU
